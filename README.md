@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @billygotmilk43
+- 👀 I’m interested in cats
+- 🌱 I’m currently learning cats
+- 💞️ I’m looking to collaborate on cats
+- 📫 How to reach me cats
+- 😄 Pronouns: cats
+- ⚡ Fun fact: cats
